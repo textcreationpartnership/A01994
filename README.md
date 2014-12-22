@@ -33,23 +33,23 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-Here begynneth a lytell treatyse called the gouernall of helthe with ye medecyne of ye stomackeGover
+
 #####Body#####
+IN this treatyſe that is clypped gouernall of helth. What is to be ſayd with cryſtes helpe of ſome t
+    _ ¶Of the body exercyſe and of his profyte.
 
-1. ¶Of the body exercyſe and of his profyte.
+    _ ¶The ſpyces of exercyſe.
 
-1. ¶The ſpyces of exercyſe.
+    _ ¶How a man ſholde behaue hym in etynge.
 
-1. ¶How a man ſholde behaue hym in etynge.
+    _ ¶How a man ſholde behaue hym in his drynke.
 
-1. ¶How a man ſholde behaue hym in his drynke.
+    _ ¶What ſhall be done after mete.
 
-1. ¶What ſhall be done after mete.
-
-1. ¶Of noyes of euyll gouernaunce.
+    _ ¶Of noyes of euyll gouernaunce.
 
 #####Back#####
-Here begynneth a lytell treatyse called the gouernall of helthe with ye medecyne of ye stomackeGover
+¶Here endeth the gouernall of helth. Enprented in flete ſtrete in London in the ſygne of the ſonne b
 **Types of content**
 
   * There are 75 **verse** lines!
